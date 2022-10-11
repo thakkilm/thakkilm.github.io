@@ -1,6 +1,6 @@
 # MAHESH THAKKILAPATI
 
-- I like playing Badminton
+- I like playing Badminton.
 - I love driving cars and going to long trips
 - I like watching Cartoon Network
 
